@@ -1,2 +1,0 @@
-Sitting here in kerusi goyang at the balcony, suddenly having a thought about this, after searching about "thought vs action, which one dictate ourselves first?":
-"Why do i remember the moment of me looking at the bukit bauk, beside the bilik tayang at sains dungun, the time where we wait for the door to be open, it was during form 5, it was morning, the weather is cloudy, it was quite cold too.."
