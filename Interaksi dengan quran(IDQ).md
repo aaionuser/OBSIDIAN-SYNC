@@ -1,0 +1,1 @@
+Bab 4 : Latar belakang penurunan
