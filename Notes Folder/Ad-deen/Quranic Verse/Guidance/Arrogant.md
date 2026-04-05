@@ -1,0 +1,1 @@
+2:206 - Dan bila dikatakan kepadanya, "bertaqwalah kepada allah" semakin tinggi lah kesombongannya untuk membuat dosa. Maka yang terbaik buatnya adalah neraka jahannam, dan sesungguhnya(jahannman itu) tempat tinggal yang terburuk
